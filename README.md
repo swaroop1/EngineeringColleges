@@ -108,7 +108,7 @@
   * (91) 8922 248001, 002
   * Dakabarri (v),Bheemunipatnam Mandal
 
-19. Raghu Institute of Technology
+19.Raghu Institute of Technology
   * ritvsp@yahoo.com
   * http://www.raghuinstech.com/contactus.php
   * +91 8922 248003, 13
