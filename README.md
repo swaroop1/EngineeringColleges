@@ -153,12 +153,93 @@
 26.Viswanadha Institute of Technology & Mngt(VITAM)
   * http://www.vitamcoe.edu.in/
   * check site for other details
-  
+
 27.Wellfare Institute of Science Technology and Management
   * principal@wellfareeducation.edu.in, info@wellfareeducation.edu.in
   * http://www.wellfareeducation.edu.in/contactus.asp
   * 0891 2866902 , 9912814499
   * PINAGADI VILLAGE, NEAR PENDURTHY, VISAKHAPATNAM. 
 
+# Colleges in Vizianagaram
 
+1.Avanthi’s Research & Technological Academy
+  * info@avanthi.edu.in
+  * http://arta.ac.in/contact/
+  * +91 – 9849428827, 9490128827
+  * Basavapalem (V),Bhogapuram (M) ,Vijayanagaram Dist,
+
+2.Avanti Institute of Engineering and Technology
+  * info@avanthi.edu.in
+  * http://aietta.ac.in/contact/
+  *  +91-8933-226739, +91-9705169740
+  * Cherukupally (P) Bhogapuram (M) Near Tagarapuvalasa Vizianagaram (Dist)  
+
+3.BRUNDAVAN GROUP OF INSTITUTIONS
+  *  gitas_engg_college@yahoo.com
+  * no website (ha ha!!)
+  * 08944 - 259154
+  *  PIRIDI VILLAGEBOBBILI MANDAL VIZIANGARAM DIST  
+
+4.COASTAL INSTITUTE OF TECHNOLOGY AND MANAGEMENT
+  * office@citm.ac.in 
+  * 08790 500311
+  * http://www.citm.ac.in/contact.php
+  * Narapam, Veerabhadrapuram (P), Kothavalasa (M) Vizianagaram (Dist.)
+
+5.Gokul Institute of Technology and Sciences
+  * adm@gokulcollege.com
+  * http://www.gokulcollege.com/contact-us.html
+  * Principal: Dr. R. P. Das, 094408 07497,Administrative Manager:094408 07498/90
+  * Piridi BOBBILI Vizianagaram Dist. 535 568
+
+6.Lendi Institute of Engineering and Technology
+  * principal@lendi.org
+  * http://www.lendi.org/index.php/contact-us
+  * 08922-241111,241666,Dr. V.V Rama Reddy : 9490304747
+  * Jonnada , Denkada Mandal, Vizag-Viziangaram Road
+
+7.Maharaj Vijayram Gajapati Raj College of Engineering    
+  * principal.mvgr@gmail.com 
+  * http://www.mvgrce.com/
+  * 08922 241199, 241039
+  * M.V.G.R.College of Engineering  Chintalavalasa  Vizianagaram – 535005 
+
+8.Miracle Scool of Engineering
+  * aarao@miracleeducationalsociety.com
+  * www.edulokam.com
+  * 0891-6696600, 601,94408 03925
+  * Miracle City, Munjeru Village Bhogapuram Mandal Vizianagaram District
+
+9.SATYA INSTITUTE OF TECHNOLOGY AND MANAGEMENT(Under the Management of Gayatri Vidya Parishad)
+  * principal@sitam.co.in
+  * 9676788811/33/44,Land Line : 08922-234775,76,74
+  * http://www.sitam.co.in/index.php/contact
+  * GAJULAREGA, VIZIANAGARAM
+
+10.Sri Gnaneswari Research & Technological Academy for Women
+  * no email
+  * http://avanthi.edu.in/avanthi-gnaneswari/contact-us.html
+  * +91 - 8933 - 227639, 226262, Mobile	+91 - 9866664637    
+  * Kavulavada (V), Bhogapuram (M) 
+
+11.St. THERESSA INSTITUTE OF ENGINEERING & TECHNOLOGY
+  *  stiet_engg@rediffmail.com
+  *  www.sttheressaengg.org
+  *  08952 - 281061
+  *  GARBHAM ROAD, GARIVIDI
+
+12.Swamy Vivekananda Engineering College
+  * sveb.college@gmail.com ,sveb.principal@gmail.com ,sveb.correspondent@gmail.com    
+  * http://sveb.in/contact.html
+  * +91 98859 55545, +91 94918 39522 or +91 99858 85219
+  * Kalavarai Village, Bobbili Mandal, Vizianagaram District
+
+13.Thandra Paparaya Institute of Sciences & Technology
+  * princitpist@gmail.com ,tpibprincipal@gmail.com  
+  * http://www.tpist.org/adress.html
+  * (08944) 257501,08944 257502
+  * komatipalli bobbili
+  
+
+  
 
