@@ -91,9 +91,9 @@
   * Gambhiram,Visakhapatnam-531 163.
 
 16.Nightingale Engineering College
-  * no email
+  * necollege@hotmail.com
   * no website
-  * no contact nos
+  * G.Harinadha Rao(principal) 08933 - 220362
   * Gudilova Village Rd Gidijala, Andhra Pradesh 531173  
 
 17.Pydah College of Engineering & Technology
