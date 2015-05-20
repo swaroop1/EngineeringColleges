@@ -1,7 +1,10 @@
 # Colleges in Visakhapatnam
-Sl.No |    Name of College  |  Email ids  |  Website | Contact No. | Location
-------|---------------------|-------------|--------------|------------|----------|-----------
-1.|ASK College Of Technology & Management|askcakp@yahoo.com|http://www.askctm.com/home/contactus.php|08924 - 231144,33,22|Kotturu (village),Anakapalle, Visakhapatnam (Dt.)  
+
+1.ASK College Of Technology & Management  
+  * askcakp@yahoo.com
+  * http://www.askctm.com/home/contactus.php
+  * 08924 - 231144,33,22
+  * Kotturu (village),Anakapalle, Visakhapatnam (Dt.)  
 2.|Andhra University College of Engineering for Women|principal.aucew@gmail.com|http://www.andhrauniversity.edu.in/aucew/index.php|91 - 0891-2592592|Shivajipalem, Visakhapatnam - 530013
 3.|Al-Aman College of Engineering|cao@alameer.in|http://www.alameer.in/contact.html|08933-200036,08933-200038|Gudilova,Anandapuram,Visakhapatnam
 4.|Andhra University College of Engineering|principalauce@andhrauniversity.edu.in|http://www.andhrauniversity.edu.in/engg/index.html#contact|0891-2844999, 2754586|Vishakhapatnam
