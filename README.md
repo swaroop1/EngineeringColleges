@@ -85,9 +85,9 @@
   * Gonnavanipalem, Aganampudi, Visakhapatnam - 530046
 
 15.Kaushik College of Engineering     
-  * No email :worried:
+  * kaushikcoe@gmail.com
   * http://www.pydah.org/koushikeng/contactus.php?id=4
-  * 08933-222854,222942. Mobile: 98481 11118
+  * 08933-222854,222942. Mobile: 98481 11118, DR. A.RAVI PRASAD(principal) - 08933 - 222488
   * Gambhiram,Visakhapatnam-531 163.
 
 16.Nightingale Engineering College
@@ -97,7 +97,7 @@
   * Gudilova Village Rd Gidijala, Andhra Pradesh 531173  
 
 17.Pydah College of Engineering & Technology
-  * no email :worried:
+  * pydahenggcollege@yahoo.com
   * http://www.pydah.org/pydengg/contactus.php?id=1
   * Dr. Ramesh Challagundla(principal) 08933-222854, 222942, 9640552861, 9948666778.
   * Gambhiram,Boyaplem,Visakhapatnam-531 163.20 Km from RTC Complex, on NH-5
@@ -126,7 +126,7 @@
   * 08912781375/2795522/2793535/2794343
   * Behind Cricket Stadium, Pothinamallayyapalem,Vizag
 
-22.VITS College of Engineering ## recruitment going on now
+22.VITS College of Engineering :+1: ( recruitment going on now)
   * vitscolege@gmail.com
   * http://www.vits.edu.in/recruitment.php
   * +91-0893- 20125/26,
@@ -152,7 +152,8 @@
 
 26.Viswanadha Institute of Technology & Mngt(VITAM)
   * http://www.vitamcoe.edu.in/
-  * check site for other details :worried:
+  * vitam_coe@yahoo.co.in
+  * 891-2539007/ 2539008/2539009/ 2539025 , PRINCIPAL : 9849238069
 
 27.Wellfare Institute of Science Technology and Management
   * principal@wellfareeducation.edu.in, info@wellfareeducation.edu.in
@@ -217,9 +218,9 @@
   * GAJULAREGA, VIZIANAGARAM
 
 10.Sri Gnaneswari Research & Technological Academy for Women
-  * no email
+  * principal_mj@rediffmail.com
   * http://avanthi.edu.in/avanthi-gnaneswari/contact-us.html
-  * +91 - 8933 - 227639, 226262, Mobile	+91 - 9866664637    
+  * +91 - 8933 - 227639, 226262, Mobile	+91 - 9866664637, Dr. Chandu Subba Rao(principal) -08922 - 202356,9866664634
   * Kavulavada (V), Bhogapuram (M) 
 
 11.St. THERESSA INSTITUTE OF ENGINEERING & TECHNOLOGY
