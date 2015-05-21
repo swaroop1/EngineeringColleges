@@ -55,18 +55,18 @@
   * National Highway 5.Anakapalle 
 
 10.Dr L Bullaiah College Of Engineering For Women
-  * No email 
+  * No email  :worried:
   * http://www.bullayyacollege.info/contactUs.html
   * 0891 - 2703296, 2703293
   * New Resapuvanipalem
 
-11.GITAM Institute of Technology
+11.GITAM Institute of Technology :+1: recruitment going on now
   * admin@gitam.edu
   * http://www.gitam.edu/ContactUs.aspx
   * 2840501, 2795311
   * Rushikonda
 
-12.Gayathri Vidya Parishad (GVP) College of Engineering ## recruitment going on now
+12.Gayathri Vidya Parishad (GVP) College of Engineering :+1: recruitment going on now
   * principal@gvpce.ac.in
   * http://www.gvpce.ac.in/index.html
   * 91-891-2739507
@@ -85,19 +85,19 @@
   * Gonnavanipalem, Aganampudi, Visakhapatnam - 530046
 
 15.Kaushik College of Engineering     
-  * No email
+  * No email :worried:
   * http://www.pydah.org/koushikeng/contactus.php?id=4
   * 08933-222854,222942. Mobile: 98481 11118
   * Gambhiram,Visakhapatnam-531 163.
 
 16.Nightingale Engineering College
   * necollege@hotmail.com
-  * no website
+  * no website :worried:
   * G.Harinadha Rao(principal) 08933 - 220362
   * Gudilova Village Rd Gidijala, Andhra Pradesh 531173  
 
 17.Pydah College of Engineering & Technology
-  * no email
+  * no email :worried:
   * http://www.pydah.org/pydengg/contactus.php?id=1
   * Dr. Ramesh Challagundla(principal) 08933-222854, 222942, 9640552861, 9948666778.
   * Gambhiram,Boyaplem,Visakhapatnam-531 163.20 Km from RTC Complex, on NH-5
@@ -152,7 +152,7 @@
 
 26.Viswanadha Institute of Technology & Mngt(VITAM)
   * http://www.vitamcoe.edu.in/
-  * check site for other details
+  * check site for other details :worried:
 
 27.Wellfare Institute of Science Technology and Management
   * principal@wellfareeducation.edu.in, info@wellfareeducation.edu.in
@@ -160,7 +160,7 @@
   * 0891 2866902 , 9912814499
   * PINAGADI VILLAGE, NEAR PENDURTHY, VISAKHAPATNAM. 
 
-# Colleges in Vizianagaram
+# Colleges in Vizianagaram :point_down:
 
 1.Avanthi’s Research & Technological Academy
   * info@avanthi.edu.in
@@ -192,7 +192,7 @@
   * Principal: Dr. R. P. Das, 094408 07497,Administrative Manager:094408 07498/90
   * Piridi BOBBILI Vizianagaram Dist. 535 568
 
-6.Lendi Institute of Engineering and Technology
+6.Lendi Institute of Engineering and Technology :+1: recruitment going on now
   * principal@lendi.org
   * http://www.lendi.org/index.php/contact-us
   * 08922-241111,241666,Dr. V.V Rama Reddy : 9490304747
